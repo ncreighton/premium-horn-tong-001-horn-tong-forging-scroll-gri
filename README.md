@@ -1,0 +1,2 @@
+# premium-horn-tong-001-horn-tong-forging-scroll-gri
+Tired of losing track of your horn tong forging experiments and scroll grip variations? Stop wasting material on repeated setups—turn your craft into a repeatable, documented system.  This Notion template transforms your horn-tong workshop into a digital lab, where every forge session, material test, and grip iteration is logged, analyzed, and opti
